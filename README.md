@@ -1,1 +1,1 @@
-# TNS-Design-Icons
+# TNS Design Icons
